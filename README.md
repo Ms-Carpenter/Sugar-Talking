@@ -11,10 +11,15 @@ Ooh, ooh, ooh
 #
 
 **[Chorus]**
+
 Put your loving where your mouth is
+
 Your sugar talking isn't working tonight, oh
+
 Put your loving where your mouth is
+
 Yeah, your paragraphs mean shit to me
+
 Get your sorry ass to mine
 
 #
